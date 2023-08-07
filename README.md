@@ -1,2 +1,2 @@
 # seminar3
-Попова Анастасия Максимовна
+Popova Anastasiia Maksimivna
