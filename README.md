@@ -1,1 +1,1 @@
-# seminar3
+Liudmila Nikolaevna Kravets
