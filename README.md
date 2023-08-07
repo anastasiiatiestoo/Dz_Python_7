@@ -1,2 +1,2 @@
 # seminar3
-Vetoshkin Nikolay
+Vetoshkin Nikolay Mihaylovich
