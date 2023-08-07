@@ -1,11 +1,11 @@
 # seminar3
 
-Popova Anastasiia Maksimivna
+Popova Anastasiia Maksimivna: anastasiiatiestoo
 
-Sherbakov Daniil Vladislavovich
+Sherbakov Daniil Vladislavovich: Magictea
 
-Vetoshkin Nikolay Mihaylovich
+Vetoshkin Nikolay Mihaylovich: NIKKnak
 
-Pitkevich Jevgeny Sergeevich
+Pitkevich Jevgeny Sergeevich: Jevgenyp
 
-Liudmila Nikolaevna Kravets
+Liudmila Nikolaevna Kravets: LiudmilaKR
